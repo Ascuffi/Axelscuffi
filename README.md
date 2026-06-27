@@ -8,4 +8,3 @@
 - 📫 Cómo contactarme: @scuffiaxel
 - 😄 Pronombres: él.
 - ⚡ Dato curioso: Combino el desarrollo con el entrenamiento físico y el fútbol.
--->
